@@ -1,2 +1,2 @@
 # hello-world
-hello biatch
+I love anime and weed
